@@ -1,2 +1,2 @@
-#BR-MUNDO-DOS-GRIFOS 🦅
-Loja Oficial do Servidor BR-MUNDO-DOS-GRIFOS 🦅
+#BR-MUNDO-DOS-GRIFOS 
+Loja Oficial do Servidor BR-MUNDO-DOS-GRIFOS 
